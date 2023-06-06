@@ -15,10 +15,19 @@ Bank atm
 bank account details he took 
 He Himself kept an auto-debit and started looting much more
 
+
 1.He not gave me Scaler recipt.
+
+
 2.he not even asked what Course you Want
+
+
 3.he given course confirmation email without mentiong Course and it's Timings
+
+
 4.he said in dashboard many facilites are there and he not even Explaining Dashboard
+
+
 5.he made auto-debit finally started looting lot's of money
 
 
