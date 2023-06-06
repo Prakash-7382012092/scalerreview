@@ -47,3 +47,7 @@ But what Scaler is quoted just please see
 
 Begged like beggers and not refund money
 
+They started looting many others like this
+
+
+![ree](https://github.com/Prakash-7382012092/scalerreview/assets/52729945/1d200260-e0b8-466e-bf55-f1a72c9c2cd5)
