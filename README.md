@@ -1,4 +1,4 @@
-# scalerreview
+# Scaler Frauds and Scams
 Scaler Frauds and Scams
 
 Hi Everyone i am going to Explain How Scaler is going to do Frauds and Scams
