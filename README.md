@@ -15,3 +15,10 @@ Bank atm
 bank account details he took 
 He Himself kept an auto-debit and started looting much more
 
+
+I continously asked for dashboard from 3 weeks 
+i asked how to  your course will be good and how i need to continue 
+
+Then he sent a email
+
+![unnamed](https://github.com/Prakash-7382012092/scalerreview/assets/52729945/d96c3a04-7dbf-4554-95d3-91bdddb6351e)
